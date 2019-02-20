@@ -5,7 +5,7 @@ Most of the action is with the legs, the rest of the body should be relaxed.
 
 Pivot to the right. Sweep arms up in circular motion. Step left foot 90 degrees.
 
-Open arms and chest push down in front of body and sink as hands push down to sides. Keep crown up.
+Open arms and chest, push down in front of body and sink as hands push down to sides. Keep crown up.
 
 Swing right arm in circle and chop outward at sholder level sinking on right foot.
 
@@ -21,11 +21,12 @@ Sweep both hands down while kicking right heel forward.
 
 Step forward and push hands forward and down. Sink at the end.
 
-Single whip push right wrist up while left hand points are wrist. 
-
+Single whip push right wrist out while left hand points are wrist and lifting left foot.
+Left knee points in direction of step. 
+ 
 Rotate body and step left while left hand cirles up and comes down.
-
-Keep arms rounded and left hand at shoulder level.
+Step and left hand come down connected. Arms are rounded and draped. Energy in hands only.
+Right arm same direction as right knee.
 
 Curl left hand to the right and swing right arm close to body while stepping right leg forward.
 
